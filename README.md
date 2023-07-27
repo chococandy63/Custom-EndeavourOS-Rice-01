@@ -13,6 +13,8 @@ Happy pricing ;)
 
 ![image](https://github.com/chococandy63/Custom-EndeavourOS-Rice-01/assets/79960426/fe618793-84b1-47f3-9329-16eae101e3bb)
 
+![image](https://github.com/chococandy63/Custom-EndeavourOS-Rice-01/assets/79960426/47e508fa-09ae-4469-84fc-30ff8612f783)
+
 
 ![image](https://github.com/chococandy63/Custom-EndeavourOS-Rice-01/assets/79960426/b482387f-5fca-42cd-8a7c-54ba4e6b4b78)
 
